@@ -1,1 +1,1 @@
-# Thu-t-to-n-t-m-ng
+# Thuat toan tim kiem
